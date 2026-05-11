@@ -1,0 +1,1 @@
+# Acode-Resources-StyleOfDaijin-artcode
